@@ -5,7 +5,7 @@
 <br/>
 <br/>
   
-- Name *GiaBao Jukino**
+- Name *BaoBao Junior**
 
 - Live in **Viet Nam**
 
