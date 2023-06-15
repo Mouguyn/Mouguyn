@@ -5,7 +5,7 @@
 <br/>
 <br/>
   
-- Name *BaoBao Junior**
+- Name **BaoBao Junior**
 
 - Live in **Viet Nam**
 
